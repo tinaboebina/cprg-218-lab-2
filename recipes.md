@@ -114,3 +114,26 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Death by Chocolate
+Brownies:
+1. (18.4 ounce) package brownie mix (such as Betty Crocker®)
+2. large eggs
+3. ½ cup vegetable oil
+4. 3 tablespoons water
+
+Chocolate Pudding:
+1. 4 cups milk
+2. 2 (3.9 ounce) packages instant chocolate pudding mix
+
+To Assemble:
+1. 3 (1.4 ounce) bars chocolate covered English toffee
+2. 1 (16 ounce) package frozen whipped topping, thawed
+
+Instructions:
+1. Preheat the oven to 350 degrees F (175 degrees C). Grease a 9x13-inch baking pan.
+2. Make the brownies: Combine brownie mix, eggs, vegetable oil, and water in a large bowl. Mix with a wooden spoon until well blended. Spread into the prepared baking pan.
+3. Bake in the preheated oven until a toothpick inserted 2 inches from the side of the pan comes out clean, about 25 minutes. Let cool completely.
+4. Meanwhile, prepare the pudding: Whisk milk and pudding mix together in a large bowl until smooth; set aside.
+5. To assemble: Crumble 1/2 of the brownies on the bottom of a glass punch bowl; spoon 1/2 of the pudding on top. Crush 1 toffee bar over pudding and top with 1/2 of the whipped topping. Repeat layers in the same order, then refrigerate until ready to serve, saving the last toffee bar to crumble and sprinkle on top before serving.
+
